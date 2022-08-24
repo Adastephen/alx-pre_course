@@ -1,1 +1,1 @@
-this is a serious work it is only for the strong
+Not only for the strong but for those who can endure it till the end.
